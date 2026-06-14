@@ -1,0 +1,1 @@
+# bankasasukoi.github.io
